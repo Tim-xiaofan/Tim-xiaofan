@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tim-xiaofan
 - 👀 I’m interested in eating
 - 🌱 I’m currently learning to sleep
-- 💞️ I’m looking to collaborate on  xiaojieji
+- 💞️ I’m looking to collaborate on  xiaojiejie
 - 📫 How to reach me : 1305696765@qq.com
 
 <!---
